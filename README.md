@@ -5,7 +5,7 @@ BUHO CASO 7
 https://carhome.store/
 
 
-<img width="599" alt="image" src="https://github.com/Jysn22/Paypal/assets/125273441/5fdbe6c0-e0ac-480d-a280-60fcdbb6dc92">
+<img width="511" alt="image" src="https://github.com/Jysn22/Paypal/assets/125273441/466bfb6b-6c6a-4e9d-a60e-fbf1bec83116">
 
 _______________________________________
 
